@@ -1,2 +1,0 @@
-# feddyWanderae.Omaso
-first respiratory
